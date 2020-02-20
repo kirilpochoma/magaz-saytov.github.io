@@ -1,0 +1,1 @@
+# magaz-saytov.github.io
